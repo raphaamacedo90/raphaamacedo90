@@ -8,7 +8,7 @@ Buscando oportunidades remunerados e não remunerados para aplicar minhas habili
 #### 🎓 Formação e Experiência
 
 - Estudante de **Análise e Desenvolvimento de Sistemas**  
-- MBA em **Análise de Dados**  
+- Em andamento MBA em **Análise de Dados**  
 - Experiência sólida em **Contabilidade** e **Análise de Negócios**
 
 ---
